@@ -1,5 +1,4 @@
 ## Hi there 👋
-Hello world
 
 Greetings. Folks call me Zoom some even know me as Tweaker Zoom. I've been given all sorts of names over the years, but truth be told, I'm just another ordinary person trying to make his way through this world.
 
